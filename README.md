@@ -1,6 +1,6 @@
 # 📱 POCO F7 Ultra 5G – 512GB + 16GB RAM
 
-O **POCO F7 Ultra 5G** com **512GB de armazenamento** e **16GB de RAM** já está disponível na **[Qtag](qtag.com.br)**, oferecendo um conjunto de especificações de ponta que o posicionam como um dos smartphones mais avançados de **2025**.
+O **POCO F7 Ultra 5G** com **512GB de armazenamento** e **16GB de RAM** já está disponível na **[Qtag](https://www.qtag.com.br)**, oferecendo um conjunto de especificações de ponta que o posicionam como um dos smartphones mais avançados de **2025**.
 
 ---
 
@@ -31,13 +31,13 @@ O **POCO F7 Ultra 5G** com **512GB de armazenamento** e **16GB de RAM** já est�
 ## 💰 Preço e Disponibilidade
 
 📦 O modelo com **512GB + 16GB RAM** está disponível por aproximadamente **US$789** em diversas lojas online.  
-Na **[Qtag](#)**, o dispositivo está **disponível para pronta entrega**!
+Na **[Qtag](https://www.qtag.com.br)**, o dispositivo está **disponível para pronta entrega**!
 
 ---
 
 ## 🔗 Link para Compra
 
-👉 [Acesse aqui e compre o POCO F7 Ultra 5G na Qtag]([#](https://qtag.com.br/smartphone-poco-f7-ultra-5g-512gb-16gb-snapdragon-8-amoled-2k-120hz-pronta-entrega-895))
+👉 [Compre agora o POCO F7 Ultra 5G na Qtag](https://qtag.com.br/smartphone-poco-f7-ultra-5g-512gb-16gb-snapdragon-8-amoled-2k-120hz-pronta-entrega-895)
 
 ---
 
